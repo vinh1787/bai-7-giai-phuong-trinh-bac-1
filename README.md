@@ -1,0 +1,1 @@
+# bai 7 giai phuong trinh bac 1
